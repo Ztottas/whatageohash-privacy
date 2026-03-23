@@ -1,1 +1,0 @@
-# whatageohash-privacy
